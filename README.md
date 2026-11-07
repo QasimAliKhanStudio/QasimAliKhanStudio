@@ -30,8 +30,8 @@ I'm passionate about technology, software development, cybersecurity, and artifi
 ### 📌 Featured Projects
 Coming soon! Working on practical projects and sharing my progress here.
 
-### 🤝 Connect With Me
 
 
----
+
+
 ⭐ Thanks for visiting my profile!
